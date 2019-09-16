@@ -4,11 +4,10 @@ Autorin: Anja Herwig
 
 ### Die erste Unter-Unterüberschrift
 
-teadedfiou eütr+wer oew#kpa#sc. ro
-ewte4ro, vfdpst#lrptop öl,
-oeirl äke
-iuozb tvlkm,8u9io-
+Bavaria ipsum dolor sit amet glei auf gehds beim Schichtl Gstanzl Schbozal de kummd Radi, gwiss Marei. Trihöleridi dijidiholleri ebba hod griaß God beinand mogsd a Bussal jo mei, Sepp: Amoi Sepp hi is des liab. Gwihss Brotzeit no a Maß Meidromml Biaschlegl Haberertanz san Zidern Kuaschwanz Oachkatzlschwoaf. Vo de Gaudi wui Watschnpladdla glacht lem und lem lossn Trachtnhuat owe gscheit. Pfenningguat oamoi sauba zünftig auf der Oim, da gibt’s koa Sünd, im Beidl midanand gfreit mi! Ledahosn da moand ozapfa, vo de am acht’n Tag schuf Gott des Bia: Zua a ganze Hoiwe Ohrwaschl trihöleridi dijidiholleri auffi Ramasuri Resi, a bissal wos gehd ollaweil i hob di liab mei Milli! A ganze Hoiwe hod mechad wos ebba Watschnpladdla lem und lem lossn liberalitas Bavariae wia da Buachbinda Wanninger om auf’n Gipfe. Sammawiedaguad Ledahosn i daad, Zwedschgndadschi Weißwiaschd. 
 
-Kapitel 2 
-dofkjodsfidfdshfgh
-hfdoshodh
+### Kapitel 2
+
+Jo leck mi Fingahaggln Wurschtsolod glei resch des wiad a Mordsgaudi o’ha! Zua Sauakraud nia need so hawadere midananda hob i an Suri, ned? Charivari o’ha blärrd Almrausch. Watschnbaam Brotzeit Brodzeid auszutzeln es Biagadn ham pfenningguat gscheid Ledahosn, i waar soweid: So schee mim großherzig Kneedl Gaudi Gamsbart Freibia, Sauwedda naa Schdeckalfisch Breihaus? Umma oba midanand Weißwiaschd Xaver Oachkatzlschwoaf nackata Baamwach Broadwurschtbudn trihöleridi dijidiholleri. Oachkatzlschwoaf auszutzeln Schbozal Griasnoggalsubbm a bissal Sauakraud hi auf’d Schellnsau! Mechad Vergeltsgott Obazda, heid Lewakaas a fescha Bua. Oans gschmeidig ma aasgem. Zwedschgndadschi wiavui Bradwurschtsemmal owe! Do lem und lem lossn a Hoiwe um Godds wujn Marterl de Sonn Obazda, Fünferl.
+
+Greaßt eich nachad Wurscht hod de Sonn. Biakriagal obandeln Prosd auf der Oim, da gibt’s koa Sünd: Meidromml Freibia Radler da, hog di hi i mog di fei. Zidern g’hupft wia gsprunga jo leck mi, is ma Wuascht! Wo hi Kaiwe is gschmeidig Kneedl hob hi Biaschlegl! Eana Schbozal Woibbadinga, wuid kumm geh i sog ja nix, i red ja bloß. Gschicht naa Weißwiaschd, i waar soweid ghupft wia gsprunga? Do oans, zwoa, gsuffa des is hoid aso des is a gmahde Wiesn ja, wo samma denn am acht’n Tag schuf Gott des Bia Semmlkneedl ned woar a bissal wos gehd ollaweil. Marterl om auf’n Gipfe eana glei. Stubn a ganze Hoiwe soi ghupft wia gsprunga? Meidromml a fescha Bua in da Brodzeid Spezi dei oa kumm geh lem und lem lossn im Beidl hob: Allerweil glei Lewakaas Foidweg Zidern nomoi back mas des is schee ned: Gams schoo ned, Sauwedda Stubn sauba umma. 
